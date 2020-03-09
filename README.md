@@ -1,6 +1,5 @@
 # Codex Vitae
 
-
 A living and dying record of my beliefs.
 
 This is a public, living, dying, document. I’m attempting to be as specific as possible and to quickly correct errors when they become apparent.
@@ -17,18 +16,25 @@ This is a public, living, dying, document. I’m attempting to be as specific as
 ## Work
 
 Project based work has been more valuable to me than management positions ❤️
+
 ---
+
 Having skills that complete work is more valuable than being in a middle management position ❤️
+
 ---
 
 ## Universe
 
 Watching the sky and stars has brought me great joy. Spend time looking for the northern lights, constellations, meteor showers, satellites. Also it has helped me understand foundational truths like the earth is round ❤️
+
 ---
+
 The solar system we inhabit was born like all other systems, and there is nothing inherently unique about it 💪
+
 ---
 
 ## Relationships
 
 Soulmates don't exist ❤️ 🐲
+
 ---
