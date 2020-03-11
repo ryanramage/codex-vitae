@@ -28,7 +28,7 @@ Soulmates don't exist ❤️ 🐲
 
 When people discuss arguments they are usually refining their ideas rather than being absolutely committed to what they are saying. Unfortunately, speaking something also tends to cement a belief.
 
-Imagine being mute and maybe less able to plan. Many species experience living with emotions and thoughts at that level. It's probably a stretch to imagine how they feel.
+Imagine being mute and maybe less able to plan. Many species experience living with emotions and thoughts at that level. It's probably not a stretch to imagine how they feel.
 
 Life exists in other pockets of the universe. Some is as intelligent as us.
 
